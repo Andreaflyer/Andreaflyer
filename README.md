@@ -1,1 +1,1 @@
-- 👋 Ciao, Sono Andreaflyer e possiedo una X12s aggiornata ad Ethos
+- 👋 Ciao, Sono Andreaflyer e possiedo una Frsky X12s aggiornata ad Ethos
